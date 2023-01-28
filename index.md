@@ -35,12 +35,14 @@ bestaat uit muizen en andere kleine knaagdieren, aan met vruchten en
 bessen. Soms eet een vos knaagdieren of kippen uit een ren. Dit betekent
  niet dat de vos gevaarlijk of agressief is. Beveilig de ren goed en de 
 vos zal vertrekken en zijn eten in het bos zoeken. 
+![image](https://user-images.githubusercontent.com/123813367/215279344-2d95b3a5-2368-4273-b07d-4e235280db04.png)
 
 Het territorium van de vos varieert van 100 tot 400 hectare. Het 
 territorium is kleiner wanneer er veel voedsel te vinden is en groter 
 wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
 
 ![image](https://user-images.githubusercontent.com/123813367/215276023-00dd299a-d06f-490e-b385-3b77ab950731.png)
+![image](https://user-images.githubusercontent.com/123813367/215279310-10f7ebf2-f9bb-4f99-97d7-470484576d85.png)
 
 Vossen zijn sluwe beesten, maar ook bang voor de mens. de mens is ook de vijand van de vos. 
 Maar ik vind het wel lieve beesten. Er zijn verschillende soorten vossen
@@ -82,9 +84,11 @@ meute jachthonden op vossen jagen. Deze ‘sport’ ontstond waarschijnlijk
 in de 16de eeuw, toen de grote populatie vossen in Engeland een 
 bedreiging vormde voor de kippenkweek. De wrede manier van jagen zorgt 
 tegenwoordig voor veel controverse. Op vossen jagen met honden is 
-tegenwoordig niet meer toegelaten in Engeland. 
+tegenwoordig niet meer toegelaten in Engeland.
 
+Er zijn ook info boeken over de vos.
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPFTEuT3d4I" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
 
