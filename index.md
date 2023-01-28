@@ -3,7 +3,9 @@
 In 1758 heeft [Carl Linnaeus](https://nl.wikipedia.org/wiki/Carl_Linnaeus) voor het eerst over een vos geschreven. De vos is een hondachtig zoogdier.De vos is gelukkig niet bedreigd. 
 
 ![](https://www.thijsschouten.com/wp-content/gallery/vossen/SCH7366.jpg)
+
 # ik en de vos
+
 Ik heb zelf veel dingen van de vos zoals:
 
 - een poster
@@ -25,13 +27,13 @@ meestal vier tot zes welpjes. De paartijd valt in de winter, waardoor
 moeren tussen maart en mei werpen.
 
 ![image](https://user-images.githubusercontent.com/123813367/215275472-9ae0391d-d13c-46db-b82b-d8d4d09a60a6.png)
+
 Hoewel de vos tot de carnivoren, de vleeseters, behoort, beperkt hij 
 zich niet tot dierlijk voedsel. Hij vult zijn menu, wat voornamelijk 
 bestaat uit muizen en andere kleine knaagdieren, aan met vruchten en 
 bessen. Soms eet een vos knaagdieren of kippen uit een ren. Dit betekent
  niet dat de vos gevaarlijk of agressief is. Beveilig de ren goed en de 
 vos zal vertrekken en zijn eten in het bos zoeken.
-
 
 Hoewel de vos tot de carnivoren, de vleeseters, behoort, beperkt hij 
 zich niet tot dierlijk voedsel. Hij vult zijn menu, wat voornamelijk 
