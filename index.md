@@ -13,4 +13,4 @@ Ik heb zelf veel dingen van de vos zoals:
 - een boek
 - een foto
 
-In het latijn zeg je niet vos maar vulpes. De vos is een van de grootste roofdieren van nederland.En mischien
+In het latijn zeg je niet vos maar vulpes. De vos is een van de grootste roofdieren van nederland.En mischien wel de beroemste. Hij wordt ook wel de rode vos genoemd of de gewone 
