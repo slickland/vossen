@@ -34,14 +34,8 @@ zich niet tot dierlijk voedsel. Hij vult zijn menu, wat voornamelijk
 bestaat uit muizen en andere kleine knaagdieren, aan met vruchten en 
 bessen. Soms eet een vos knaagdieren of kippen uit een ren. Dit betekent
  niet dat de vos gevaarlijk of agressief is. Beveilig de ren goed en de 
-vos zal vertrekken en zijn eten in het bos zoeken.
+vos zal vertrekken en zijn eten in het bos zoeken. 
 
-Hoewel de vos tot de carnivoren, de vleeseters, behoort, beperkt hij 
-zich niet tot dierlijk voedsel. Hij vult zijn menu, wat voornamelijk 
-bestaat uit muizen en andere kleine knaagdieren, aan met vruchten en 
-bessen. Soms eet een vos knaagdieren of kippen uit een ren. Dit betekent
- niet dat de vos gevaarlijk of agressief is. Beveilig de ren goed en de 
-vos zal vertrekken en zijn eten in het bos zoeken.
 Het territorium van de vos varieert van 100 tot 400 hectare. Het 
 territorium is kleiner wanneer er veel voedsel te vinden is en groter 
 wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
@@ -69,7 +63,7 @@ Maar ik vind het wel liefe beesten. Er zijn verschillende soorten vossen
 Hier boven zie je er een paar.
 
 
-
+Het dier loopt op zijn tenen en kan zijn klauwen intrekken. In een boom klimmen doet hij even behendig als een kat. 
 
 
 
