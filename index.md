@@ -57,3 +57,36 @@ poolvos
 Hier boven zie je er een paar.
 
 Het dier loopt op zijn tenen en kan zijn klauwen intrekken. In een boom klimmen doet hij even behendig als een kat. 
+
+De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat.
+ Net als een kat gaat de vos vooral ’s avonds en ’s nachts op zoek naar 
+een prooi
+
+
+![image](https://user-images.githubusercontent.com/123813367/215278792-5eb6a52d-5072-468d-b82b-d7291b1571ef.png)
+
+
+
+
+
+
+Ook Darwin ontdekte tijdens zijn wereldreis met de Beagle een tot dan 
+toe onbekende vossensoort, later naar hem ‘Darwins vos’ genoemd. Deze 
+kleine grijze vossen komen nog slechts op twee plaatsen voor in Chili. 
+De beestjes zijn helaas met uitsterven bedreigd. 
+
+
+De vossenjacht was vroeger het favoriete tijdverdrijf van de Engelse 
+adel. De Engelse lords deden niet liever dan te paard met een grote 
+meute jachthonden op vossen jagen. Deze ‘sport’ ontstond waarschijnlijk 
+in de 16de eeuw, toen de grote populatie vossen in Engeland een 
+bedreiging vormde voor de kippenkweek. De wrede manier van jagen zorgt 
+tegenwoordig voor veel controverse. Op vossen jagen met honden is 
+tegenwoordig niet meer toegelaten in Engeland. 
+
+
+
+
+
+
+
