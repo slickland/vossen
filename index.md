@@ -45,13 +45,7 @@ Het territorium van de vos varieert van 100 tot 400 hectare. Het
 territorium is kleiner wanneer er veel voedsel te vinden is en groter 
 wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
 
-
-
-
-
-
-
-
+![image](https://user-images.githubusercontent.com/123813367/215276023-00dd299a-d06f-490e-b385-3b77ab950731.png)
 
 
 
