@@ -48,8 +48,9 @@ wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
 ![image](https://user-images.githubusercontent.com/123813367/215276023-00dd299a-d06f-490e-b385-3b77ab950731.png)
 
 Vossen zijn sluwe beesten, maar ook bang voor de mens. de mens is ook de vijand van de vos. 
-Maar ik vind het wel liefe beesten. Er zijn verschillende
+Maar ik vind het wel liefe beesten. Er zijn verschillende soorten vossen
 
+![image](https://user-images.githubusercontent.com/123813367/215277241-14363336-a107-4abb-82f2-e0c95e9d143b.png)
 
 
 
@@ -62,8 +63,9 @@ Maar ik vind het wel liefe beesten. Er zijn verschillende
 
 
 
+![image](https://user-images.githubusercontent.com/123813367/215277352-006e8199-b04f-4c92-a856-a26962f6e8f7.png)
 
-
+Hier boven zie je er een paar.
 
 
 
