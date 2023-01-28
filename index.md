@@ -47,7 +47,7 @@ wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
 
 ![image](https://user-images.githubusercontent.com/123813367/215276023-00dd299a-d06f-490e-b385-3b77ab950731.png)
 
-
+Vossen zijn sluwe beesten, maar ook bang voor de mens. de mens is ook de vijand van de vos. 
 
 
 
