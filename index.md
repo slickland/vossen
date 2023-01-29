@@ -32,7 +32,8 @@ moeren tussen maart en mei werpen.
 Hoewel de vos tot de carnivoren, de vleeseters, behoort, beperkt hij 
 zich niet tot dierlijk voedsel. Hij vult zijn menu, wat voornamelijk 
 bestaat uit muizen en andere kleine knaagdieren, aan met vruchten en 
-bessen. Soms eet een vos knaagdieren of kippen uit een ren. Dit betekent
+bessen. Soms eet een vos knaagdieren of kippen uit een ren. Dit betekent![image](https://user-images.githubusercontent.com/123813367/215310406-e18d5bc6-ed0e-4335-8572-a34f930019cf.png)
+
  niet dat de vos gevaarlijk of agressief is. Beveilig de ren goed en de 
 vos zal vertrekken en zijn eten in het bos zoeken. 
 
@@ -42,7 +43,7 @@ wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
 
 ![image](https://user-images.githubusercontent.com/123813367/215276023-00dd299a-d06f-490e-b385-3b77ab950731.png)
 
-Vossen zijn sluwe beesten, maar ook bang voor de mens. de mens is ook de vijand van de vos. 
+Vossen zijn sluwe beesten, maar ook bang voor de mens. De mens is ook de vijand van de vos. 
 Maar ik vind het wel lieve beesten. Er zijn verschillende soorten vossen
 
 ![image](https://user-images.githubusercontent.com/123813367/215277241-14363336-a107-4abb-82f2-e0c95e9d143b.png)  
@@ -60,7 +61,11 @@ Het dier loopt op zijn tenen en kan zijn klauwen intrekken. In een boom klimmen 
 
 De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat.
  Net als een kat gaat de vos vooral ’s avonds en ’s nachts op zoek naar 
-een prooi
+een prooi.
+
+
+# darwis vos
+
 
 
 ![image](https://user-images.githubusercontent.com/123813367/215278792-5eb6a52d-5072-468d-b82b-d7291b1571ef.png)
@@ -89,13 +94,14 @@ Er zijn ook  boeken over de vos.
 
 
 
-![image](https://user-images.githubusercontent.com/123813367/215309537-46af61fe-88b9-4625-8ce8-013771080087.png)
+![image](https://user-images.githubusercontent.com/123813367/215309537-46af61fe-88b9-4625-8ce8-013771080087.png)       dit vind  ik een leuk boek.
 
 
 
 
 
 https://www.youtube.com/embed/iPFTEuT3d4I
+
 
 
 
