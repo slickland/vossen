@@ -93,6 +93,7 @@ ig voor veel controverse. Op vossen jagen met honden is tegenwoordig niet meer t
 
 
 
+![image](https://user-images.githubusercontent.com/123813367/215323740-f76d9a4e-a53a-4dbd-ae52-f3a9145847a8.png)
 
 
 
