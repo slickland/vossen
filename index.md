@@ -64,7 +64,7 @@ De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat.
 een prooi.
 
 
-# darwis vos
+# darwins vos
 
 
 
