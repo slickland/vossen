@@ -32,7 +32,7 @@ moeren tussen maart en mei werpen.
 Hoewel de vos tot de carnivoren, de vleeseters, behoort, beperkt hij 
 zich niet tot dierlijk voedsel. Hij vult zijn menu, wat voornamelijk 
 bestaat uit muizen en andere kleine knaagdieren, aan met vruchten en 
-bessen. Soms eet een vos knaagdieren of kippen uit een ren. Dit betekent![image](https://user-images.githubusercontent.com/123813367/215310406-e18d5bc6-ed0e-4335-8572-a34f930019cf.png)
+bessen. Soms eet een vos knaagdieren of kippen uit een ren. Dit betekent
 
  niet dat de vos gevaarlijk of agressief is. Beveilig de ren goed en de 
 vos zal vertrekken en zijn eten in het bos zoeken. 
@@ -89,18 +89,43 @@ bedreiging vormde voor de kippenkweek. De wrede manier van jagen zorgt
 ig voor veel controverse. Op vossen jagen met honden is tegenwoordig niet meer toegestaan in Engeland
 
 
-Er zijn ook  boeken over de vos.
-
-
-
-
-![image](https://user-images.githubusercontent.com/123813367/215309537-46af61fe-88b9-4625-8ce8-013771080087.png)       dit vind  ik een leuk boek.
 
 
 
 
 
-https://www.youtube.com/embed/iPFTEuT3d4I
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
