@@ -16,6 +16,7 @@ Ik heb zelf veel dingen van de vos zoals:
 - een foto
 - een rugzak
 
+ # weetjes
 In het latijn zeg je niet vos maar vulpes. De vos is een van de grootste roofdieren van nederland.En mischien wel de beroemste. Hij wordt ook wel de rode vos genoemd of de gewone vos. Het duurt twaalf dagen voordat een vossenwelp voor het eerst zijn oogjes opent. 
 Als de vos in gevaar is, kan hij tijdens een sprint een topsnelheid van 
 vijftig kilometer per uur halen. Ook springen kan hij goed: tot wel vijf
@@ -96,14 +97,17 @@ ig voor veel controverse. Op vossen jagen met honden is tegenwoordig niet meer t
 ![image](https://user-images.githubusercontent.com/123813367/215323740-f76d9a4e-a53a-4dbd-ae52-f3a9145847a8.png)
 
 
+ # nog meer weetjes
+
+Het territorium van de vos varieert van 100 tot 400 hectare. Het territorium is kleiner wanneer er veel voedsel te vinden is en groter wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
+Vossen kunnen een hoop verschillende geluiden maken. Van schril gekef tot pauwachtig geroep en van kleine blafjes tot klokkende geluidjes. Daarnaast maken ze om te communiceren ook veel gebruik van lichaamstaal
 
 
+https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse2.mm.bing.net%2Fth%3Fid%3DOIP.3VJCQOBsLKTKSQCdDLlmngHaE7%26pid%3DApi&f=1&ipt=0729e62c434f5dca4514087e0e00beef25e2577dcef60972b266ba9a8a5a78e3&ipo=images
 
 
-
-
-
-
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+Velen kennen het middeleeuwse verhaal van de sluwe vos Reinaert. Dit verhaal deed het imago van de vos geen goed. Hij zou een sluw en bedrieglijk dier zijn, die graag eieren rooft en pluimvee doodt. Verdient de vos deze slechte reputatie? Niet echt. Marters, bunzings, nertsen, hermelijnen en roofvogels noemt men niet ‘sluw’ of ‘bedrieglijk’, maar zij stelen evengoed eieren of doden pluimvee.
 
 
 
