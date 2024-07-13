@@ -89,14 +89,7 @@ voor veel controverse. Op vossen jagen met honden is tegenwoordig niet meer toeg
  
 ![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse2.mm.bing.net%2Fth%3Fid%3DOIP.OU5dINt69kAz3FpQwS4P4gHaE7%26pid%3DApi&f=1&ipt=3ea58eacd10fcfe7db916b56ea5fe2fa8d5cb46109c56db3ae7c0c9f419536da&ipo=images)
 
-
-
-
-Het territorium van de vos varieert van 100 tot 400 hectare. Het territorium is kleiner wanneer er veel voedsel te vinden is en groter wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
 Vossen kunnen een hoop verschillende geluiden maken. Van schril gekef tot pauwachtig geroep en van kleine blafjes tot klokkende geluidjes. Daarnaast maken ze om te communiceren ook veel gebruik van lichaamstaal
-
-
-
 
 Velen kennen het middeleeuwse verhaal van de sluwe vos Reinaert. Dit verhaal deed het imago van de vos geen goed. Hij zou een sluw en bedrieglijk dier zijn, die graag eieren rooft en pluimvee doodt. Verdient de vos deze slechte reputatie? Niet echt. Marters, bunzings, nertsen, hermelijnen en roofvogels noemt men niet ‘sluw’ of ‘bedrieglijk’, maar zij stelen evengoed eieren of doden pluimvee.
 
