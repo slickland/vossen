@@ -93,7 +93,8 @@ Vossen kunnen een hoop verschillende geluiden maken. Van schril gekef tot pauwac
 
 Velen kennen het middeleeuwse verhaal van de sluwe vos Reinaert. Dit verhaal deed het imago van de vos geen goed. Hij zou een sluw en bedrieglijk dier zijn, die graag eieren rooft en pluimvee doodt. Verdient de vos deze slechte reputatie? Niet echt. Marters, bunzings, nertsen, hermelijnen en roofvogels noemt men niet ‘sluw’ of ‘bedrieglijk’, maar zij stelen evengoed eieren of doden pluimvee.
 
-De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat. Net als een kat gaat de vos vooral ’s avonds en ’s nachts op zoek naar een prooi. Met de verticale pupillen in zijn ogen ziet hij perfect in het duister. Het dier loopt op zijn tenen en kan zijn klauwen intrekken. In een boom klimmen doet hij even behendig als een kat.
+De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat. Net als een kat gaat de vos vooral ’s avonds en ’s nachts op zoek naar een prooi. Met de verticale pupillen in zijn ogen ziet hij perfect in het duister.
+
 De kleinste onder de vossen is de fennek (ook wel woestijnvos). Dit beestje, met zijn opvallend grote oren, is ongeveer even groot als een klein katje. Zijn ‘oversized’ oren komen goed van pas. Ze dienen niet alleen om het kleinste geluidje op te vangen, maar ook om lichaamswarmte af te voeren in de schroeiende hitte van de Saharawoestijn…
 Vossen leven op alle continenten van de aarde, behalve op het koude Antarctica, en in bijna elke staat is er minstens één legende of sprookje, waarin de vos de hoofdpersoon is. Het is niet verwonderlijk dat zo’n sluw, handig en mooi beest echt bewonderd wordt.
 
