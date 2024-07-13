@@ -4,7 +4,7 @@ In 1758 heeft [Carl Linnaeus](https://nl.wikipedia.org/wiki/Carl_Linnaeus) voor 
 
 ![](https://www.thijsschouten.com/wp-content/gallery/vossen/SCH7366.jpg)
 
- # weetjes
+# weetjes
  
 In het latijn zeg je niet vos maar vulpes. De vos is een van de grootste roofdieren van nederland.En mischien wel de beroemste. Hij wordt ook wel de rode vos genoemd of de gewone vos. Het duurt twaalf dagen voordat een vossenwelp voor het eerst zijn oogjes opent. 
 Als de vos in gevaar is, kan hij tijdens een sprint een topsnelheid van 
@@ -86,4 +86,4 @@ Vossen leven al sinds de bronstijd bij mensen. Ze werden getemd en gebruikt als 
 
 Ik wil je heel erg bedanken dat jij deze website hebt bekeken!!!
 
-![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse3.mm.bing.net%2Fth%3Fid%3DOIP.1oN11sjx-EU5F3JamtDvdAHaE_%26pid%3DApi&f=1&ipt=d53a376671fa8646b8309f95d1ee22ee32e416d2411599267158f80f4a0e300f&ipo=images)
+👍👍
