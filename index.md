@@ -5,6 +5,7 @@ In 1758 heeft [Carl Linnaeus](https://nl.wikipedia.org/wiki/Carl_Linnaeus) voor 
 ![](https://www.thijsschouten.com/wp-content/gallery/vossen/SCH7366.jpg)
 
  # weetjes
+ 
 In het latijn zeg je niet vos maar vulpes. De vos is een van de grootste roofdieren van nederland.En mischien wel de beroemste. Hij wordt ook wel de rode vos genoemd of de gewone vos. Het duurt twaalf dagen voordat een vossenwelp voor het eerst zijn oogjes opent. 
 Als de vos in gevaar is, kan hij tijdens een sprint een topsnelheid van 
 vijftig kilometer per uur halen. Ook springen kan hij goed: tot wel vijf
@@ -29,8 +30,6 @@ Het territorium van de vos varieert van 100 tot 400 hectare. Het
 territorium is kleiner wanneer er veel voedsel te vinden is en groter 
 wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
 
-
-
 Vossen zijn sluwe beesten, maar ook bang voor de mens. De mens is ook de vijand van de vos. 
 Maar ik vind het wel lieve beesten. Er zijn verschillende soorten vossen
 
@@ -47,21 +46,11 @@ Hier boven zie je er een paar.
 
 Het dier loopt op zijn tenen en kan zijn klauwen intrekken. In een boom klimmen doet hij even behendig als een kat. 
 
-De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat.
- Net als een kat gaat de vos vooral ’s avonds en ’s nachts op zoek naar 
-een prooi.
-
+De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat. Net als een kat gaat de vos vooral ’s avonds en ’s nachts op zoek naar een prooi.
 
 # darwins vos
 
-
-
-
-
 ![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse1.mm.bing.net%2Fth%3Fid%3DOIP.grORFwKIQ5fq-q_WhzNZgAHaEt%26pid%3DApi&f=1&ipt=99927ed719b8e3ded5bf4171032c7e63fa1db1e3ae8d5739df01c6f67651b3d2&ipo=images)
-
-
-
 
 Ook Darwin ontdekte tijdens zijn wereldreis met de Beagle een tot dan 
 toe onbekende vossensoort, later naar hem ‘Darwins vos’ genoemd. Deze 
@@ -76,17 +65,8 @@ in de 16de eeuw, toen de grote populatie vossen in Engeland een
 bedreiging vormde voor de kippenkweek. De wrede manier van jagen zorgt 
 voor veel controverse. Op vossen jagen met honden is tegenwoordig niet meer toegestaan in Engeland
 
+# nog meer weetjes
 
-
-
-
-
-
-
-
- # nog meer weetjes
-
- 
 ![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse2.mm.bing.net%2Fth%3Fid%3DOIP.OU5dINt69kAz3FpQwS4P4gHaE7%26pid%3DApi&f=1&ipt=3ea58eacd10fcfe7db916b56ea5fe2fa8d5cb46109c56db3ae7c0c9f419536da&ipo=images)
 
 Vossen kunnen een hoop verschillende geluiden maken. Van schril gekef tot pauwachtig geroep en van kleine blafjes tot klokkende geluidjes. Daarnaast maken ze om te communiceren ook veel gebruik van lichaamstaal
@@ -102,30 +82,8 @@ Vossen leven al sinds de bronstijd bij mensen. Ze werden getemd en gebruikt als 
 
 # Dank je
 
-
-
-
-
-
-
-
 ![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse4.mm.bing.net%2Fth%3Fid%3DOIP.tHlj7SGzo0SneFn-dZ5ZswHaHl%26pid%3DApi&f=1&ipt=b744bb905b8a4bfa33af574b93576f8c6ea2d5f2d0f4769787ab1244140f94be&ipo=images)
-
-
-
-
-
-
-
-
-
 
 Ik wil je heel erg bedanken dat jij deze website hebt bekeken!!!
 
-
-
-
-
 ![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse3.mm.bing.net%2Fth%3Fid%3DOIP.1oN11sjx-EU5F3JamtDvdAHaE_%26pid%3DApi&f=1&ipt=d53a376671fa8646b8309f95d1ee22ee32e416d2411599267158f80f4a0e300f&ipo=images)
-
-
