@@ -4,18 +4,6 @@ In 1758 heeft [Carl Linnaeus](https://nl.wikipedia.org/wiki/Carl_Linnaeus) voor 
 
 ![](https://www.thijsschouten.com/wp-content/gallery/vossen/SCH7366.jpg)
 
-# ik en de vos
-
-Ik heb zelf veel dingen van de vos zoals:
-
-- een poster
-- een kussen
-- een handdoek
-- knuffels wel 6
-- een boek
-- een foto
-- een rugzak
-
  # weetjes
 In het latijn zeg je niet vos maar vulpes. De vos is een van de grootste roofdieren van nederland.En mischien wel de beroemste. Hij wordt ook wel de rode vos genoemd of de gewone vos. Het duurt twaalf dagen voordat een vossenwelp voor het eerst zijn oogjes opent. 
 Als de vos in gevaar is, kan hij tijdens een sprint een topsnelheid van 
@@ -42,7 +30,7 @@ Het territorium van de vos varieert van 100 tot 400 hectare. Het
 territorium is kleiner wanneer er veel voedsel te vinden is en groter 
 wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
 
-![image](https://user-images.githubusercontent.com/123813367/215276023-00dd299a-d06f-490e-b385-3b77ab950731.png)
+
 
 Vossen zijn sluwe beesten, maar ook bang voor de mens. De mens is ook de vijand van de vos. 
 Maar ik vind het wel lieve beesten. Er zijn verschillende soorten vossen
@@ -69,9 +57,9 @@ een prooi.
 
 
 
-![image](https://user-images.githubusercontent.com/123813367/215278792-5eb6a52d-5072-468d-b82b-d7291b1571ef.png)
 
 
+![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse1.mm.bing.net%2Fth%3Fid%3DOIP.grORFwKIQ5fq-q_WhzNZgAHaEt%26pid%3DApi&f=1&ipt=99927ed719b8e3ded5bf4171032c7e63fa1db1e3ae8d5739df01c6f67651b3d2&ipo=images)
 
 
 
@@ -94,21 +82,25 @@ ig voor veel controverse. Op vossen jagen met honden is tegenwoordig niet meer t
 
 
 
-![image](https://user-images.githubusercontent.com/123813367/215323740-f76d9a4e-a53a-4dbd-ae52-f3a9145847a8.png)
+
 
 
  # nog meer weetjes
+
+ 
+![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse2.mm.bing.net%2Fth%3Fid%3DOIP.OU5dINt69kAz3FpQwS4P4gHaE7%26pid%3DApi&f=1&ipt=3ea58eacd10fcfe7db916b56ea5fe2fa8d5cb46109c56db3ae7c0c9f419536da&ipo=images)
+
+
+
 
 Het territorium van de vos varieert van 100 tot 400 hectare. Het territorium is kleiner wanneer er veel voedsel te vinden is en groter wanneer eten schaars is. De vos moet immers verder zoeken naar voedsel.
 Vossen kunnen een hoop verschillende geluiden maken. Van schril gekef tot pauwachtig geroep en van kleine blafjes tot klokkende geluidjes. Daarnaast maken ze om te communiceren ook veel gebruik van lichaamstaal
 
 
-https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse2.mm.bing.net%2Fth%3Fid%3DOIP.3VJCQOBsLKTKSQCdDLlmngHaE7%26pid%3DApi&f=1&ipt=0729e62c434f5dca4514087e0e00beef25e2577dcef60972b266ba9a8a5a78e3&ipo=images
 
 
------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 Velen kennen het middeleeuwse verhaal van de sluwe vos Reinaert. Dit verhaal deed het imago van de vos geen goed. Hij zou een sluw en bedrieglijk dier zijn, die graag eieren rooft en pluimvee doodt. Verdient de vos deze slechte reputatie? Niet echt. Marters, bunzings, nertsen, hermelijnen en roofvogels noemt men niet ‘sluw’ of ‘bedrieglijk’, maar zij stelen evengoed eieren of doden pluimvee.
-
+De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat. Net als een kat gaat de vos vooral ’s avonds en ’s nachts op zoek naar een prooi. Met de verticale pupillen in zijn ogen ziet hij perfect in het duister. Het dier loopt op zijn tenen en kan zijn klauwen intrekken. In een boom klimmen doet hij even behendig als een kat.
 
 
 
