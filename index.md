@@ -1,10 +1,10 @@
-# vossen 
+# Vossen 
 
 In 1758 heeft [Carl Linnaeus](https://nl.wikipedia.org/wiki/Carl_Linnaeus) voor het eerst over een vos geschreven. De vos is een hondachtig zoogdier. De vos is gelukkig niet bedreigd. 
 
 ![](https://www.thijsschouten.com/wp-content/gallery/vossen/SCH7366.jpg)
 
-# weetjes
+# Weetjes
  
 In het latijn zeg je niet vos maar vulpes. De vos is een van de grootste roofdieren van nederland.En mischien wel de beroemste. Hij wordt ook wel de rode vos genoemd of de gewone vos. Het duurt twaalf dagen voordat een vossenwelp voor het eerst zijn oogjes opent. 
 Als de vos in gevaar is, kan hij tijdens een sprint een topsnelheid van 
@@ -48,7 +48,7 @@ Het dier loopt op zijn tenen en kan zijn klauwen intrekken. In een boom klimmen 
 
 De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat. Net als een kat gaat de vos vooral ’s avonds en ’s nachts op zoek naar een prooi.
 
-# darwins vos
+# Darwins vos
 
 ![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse1.mm.bing.net%2Fth%3Fid%3DOIP.grORFwKIQ5fq-q_WhzNZgAHaEt%26pid%3DApi&f=1&ipt=99927ed719b8e3ded5bf4171032c7e63fa1db1e3ae8d5739df01c6f67651b3d2&ipo=images)
 
@@ -65,7 +65,7 @@ in de 16de eeuw, toen de grote populatie vossen in Engeland een
 bedreiging vormde voor de kippenkweek. De wrede manier van jagen zorgt 
 voor veel controverse. Op vossen jagen met honden is tegenwoordig niet meer toegestaan in Engeland
 
-# nog meer weetjes
+# Nog meer weetjes
 
 ![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse2.mm.bing.net%2Fth%3Fid%3DOIP.OU5dINt69kAz3FpQwS4P4gHaE7%26pid%3DApi&f=1&ipt=3ea58eacd10fcfe7db916b56ea5fe2fa8d5cb46109c56db3ae7c0c9f419536da&ipo=images)
 
