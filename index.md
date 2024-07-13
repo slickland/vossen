@@ -100,7 +100,23 @@ Vossen kunnen een hoop verschillende geluiden maken. Van schril gekef tot pauwac
 
 
 Velen kennen het middeleeuwse verhaal van de sluwe vos Reinaert. Dit verhaal deed het imago van de vos geen goed. Hij zou een sluw en bedrieglijk dier zijn, die graag eieren rooft en pluimvee doodt. Verdient de vos deze slechte reputatie? Niet echt. Marters, bunzings, nertsen, hermelijnen en roofvogels noemt men niet ‘sluw’ of ‘bedrieglijk’, maar zij stelen evengoed eieren of doden pluimvee.
+
 De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat. Net als een kat gaat de vos vooral ’s avonds en ’s nachts op zoek naar een prooi. Met de verticale pupillen in zijn ogen ziet hij perfect in het duister. Het dier loopt op zijn tenen en kan zijn klauwen intrekken. In een boom klimmen doet hij even behendig als een kat.
+De kleinste onder de vossen is de fennek (ook wel woestijnvos). Dit beestje, met zijn opvallend grote oren, is ongeveer even groot als een klein katje. Zijn ‘oversized’ oren komen goed van pas. Ze dienen niet alleen om het kleinste geluidje op te vangen, maar ook om lichaamswarmte af te voeren in de schroeiende hitte van de Saharawoestijn…
+Vossen leven op alle continenten van de aarde, behalve op het koude Antarctica, en in bijna elke staat is er minstens één legende of sprookje, waarin de vos de hoofdpersoon is. Het is niet verwonderlijk dat zo’n sluw, handig en mooi beest echt bewonderd wordt.
+
+Vossen leven al sinds de bronstijd bij mensen. Ze werden getemd en gebruikt als honden. Vossen werden zelfs begraven met hun eigenaren. Vergelijkbare overblijfselen werden ontdekt door archeologen in Barcelona. Begrafenissen van dit type waren meer dan 5000 jaar oud.
+
+# Dank je
+
+
+
+
+
+
+
+
+![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse4.mm.bing.net%2Fth%3Fid%3DOIP.tHlj7SGzo0SneFn-dZ5ZswHaHl%26pid%3DApi&f=1&ipt=b744bb905b8a4bfa33af574b93576f8c6ea2d5f2d0f4769787ab1244140f94be&ipo=images)
 
 
 
@@ -111,21 +127,12 @@ De vos mag dan familie van de hond zijn, hij lijkt veel meer op een kat. Net als
 
 
 
+Ik wil je heel erg bedanken dat jij deze website hebt bekeken!!!
 
 
 
 
 
-
-
-
-
-
-
-
-
-
-
-
+![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse3.mm.bing.net%2Fth%3Fid%3DOIP.1oN11sjx-EU5F3JamtDvdAHaE_%26pid%3DApi&f=1&ipt=d53a376671fa8646b8309f95d1ee22ee32e416d2411599267158f80f4a0e300f&ipo=images)
 
 
