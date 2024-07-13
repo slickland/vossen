@@ -82,8 +82,4 @@ Vossen leven al sinds de bronstijd bij mensen. Ze werden getemd en gebruikt als 
 
 # Dank je
 
-![](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse4.mm.bing.net%2Fth%3Fid%3DOIP.tHlj7SGzo0SneFn-dZ5ZswHaHl%26pid%3DApi&f=1&ipt=b744bb905b8a4bfa33af574b93576f8c6ea2d5f2d0f4769787ab1244140f94be&ipo=images)
-
-Ik wil je heel erg bedanken dat jij deze website hebt bekeken!!!
-
-👍👍
+Ik wil je heel erg bedanken dat jij deze website hebt bekeken!!! 😀👍
