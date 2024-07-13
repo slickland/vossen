@@ -74,7 +74,7 @@ adel. De Engelse lords deden niet liever dan te paard met een grote
 meute jachthonden op vossen jagen. Deze ‘sport’ ontstond waarschijnlijk 
 in de 16de eeuw, toen de grote populatie vossen in Engeland een 
 bedreiging vormde voor de kippenkweek. De wrede manier van jagen zorgt 
-ig voor veel controverse. Op vossen jagen met honden is tegenwoordig niet meer toegestaan in Engeland
+voor veel controverse. Op vossen jagen met honden is tegenwoordig niet meer toegestaan in Engeland
 
 
 
