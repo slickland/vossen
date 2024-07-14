@@ -1,3 +1,7 @@
+---
+title: Vossen
+---
+
 # Vossen 
 
 In 1758 heeft [Carl Linnaeus](https://nl.wikipedia.org/wiki/Carl_Linnaeus) voor het eerst over een vos geschreven. De vos is een hondachtig zoogdier. De vos is gelukkig niet bedreigd. 
