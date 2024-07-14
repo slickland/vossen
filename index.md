@@ -10,7 +10,7 @@ In 1758 heeft [Carl Linnaeus](https://nl.wikipedia.org/wiki/Carl_Linnaeus) voor 
 
 # Weetjes
  
-In het latijn zeg je niet vos maar vulpes. De vos is een van de grootste roofdieren van nederland.En mischien wel de beroemste. Hij wordt ook wel de rode vos genoemd of de gewone vos. Het duurt twaalf dagen voordat een vossenwelp voor het eerst zijn oogjes opent. 
+In het latijn zeg je niet vos maar vulpes. De vos is een van de grootste roofdieren van nederland.En mischien wel de beroemste. Het duurt twaalf dagen voordat een vossenwelp voor het eerst zijn oogjes opent. 
 Als de vos in gevaar is, kan hij tijdens een sprint een topsnelheid van 
 vijftig kilometer per uur halen. Ook springen kan hij goed: tot wel vijf
  meter ver en twee meter hoog.Vossen worden ongeveer 35 tot 40 centimeter hoog met een kop-romplengte 
