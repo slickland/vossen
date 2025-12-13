@@ -86,10 +86,5 @@ Vossen leven al sinds de bronstijd bij mensen. Ze werden getemd en gebruikt als 
 
 # Dank je
 
-Ik wil je heel erg bedanken dat jij deze website hebt bekeken!!!
-```          
- ____                    __        __          _            
-|  _ \  ___   ___  _ __  \ \      / /__  _   _| |_    
-| | | |/ _ \ / _ \| '__|  \ \ /\ / / _ \| | | | __|  
-| |_| | (_) | (_) | |      \ V  V / (_) | |_| | |_    
-|____/ \___/ \___/|_|__     \_/\_/ \___/ \__,_|\__|    
+Ik wil je heel erg bedanken dat jij deze website hebt bekeken!         
+
